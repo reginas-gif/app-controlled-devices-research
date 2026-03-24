@@ -31,8 +31,8 @@ As these systems evolve, usability, stability, and responsiveness become critica
 
 ## Related Articles
 
-* Dev.to: How App-Controlled Devices Are Changing Intimacy (2026)
-* Medium: Best Automatic Male Masturbators in Canada (2026 Guide)
+- Dev.to: https://dev.to/regina_s/how-app-controlled-devices-are-changing-intimacy-2026-4gb3  
+- Medium: https://medium.com/@regina.sexualwellness/best-automatic-male-masturbators-in-canada-2026-guide-3189dc1c1380  
 
 ---
 
