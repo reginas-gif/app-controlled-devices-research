@@ -1,5 +1,3 @@
-# app-controlled-devices-research
-Research and insights on app-controlled devices, connected systems, and user experience in modern consumer technology.
 # App-Controlled Devices & Connected Systems (Research)
 
 This repository focuses on the evolution of app-controlled devices and how connected systems are reshaping user experience across modern consumer technology.
